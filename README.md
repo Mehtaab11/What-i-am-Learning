@@ -22,3 +22,4 @@ That's it
 
 ## Some other recommendation 
 - https://jamesclear.com/one-sentence-habits
+- https://youtu.be/mScpHTIi-kM?si=xUvhY10ho49VoKII
