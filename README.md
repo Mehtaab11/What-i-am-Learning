@@ -21,5 +21,6 @@ That's it
 - Power
 
 ## Some other recommendation 
-- https://jamesclear.com/one-sentence-habits
-- https://youtu.be/mScpHTIi-kM?si=xUvhY10ho49VoKII
+- https://jamesclear.com/one-sentence-habits 
+- https://youtu.be/mScpHTIi-kM?si=xUvhY10ho49VoKII : Game Theory
+- https://youtu.be/G3lJAxg1cy8?si=RboWtuTTAObvl9rZ : Sql Joins
