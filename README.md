@@ -28,4 +28,4 @@ That's it
 - https://youtu.be/2s9Pkfva9oU?si=Vu-m591OJh5irsGP :  Hierarchy
 - https://youtu.be/9Pgg-sTY2vo?si=gtZCt7Pbo42Hvtgz : Common English Mistakes
 - https://youtu.be/xguam0TKMw8?si=NAcwvFVwrZQ-EZ71 : Principles by Ray Dalio
-- 
+- https://youtu.be/y4AvlAUYWEM?si=ROFDiQH2IhQeyAR_ : Teens Detox
