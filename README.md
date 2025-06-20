@@ -26,3 +26,4 @@ That's it
 - https://youtu.be/mScpHTIi-kM?si=xUvhY10ho49VoKII : Game Theory
 - https://youtu.be/G3lJAxg1cy8?si=RboWtuTTAObvl9rZ : Sql Joins
 - https://youtu.be/2s9Pkfva9oU?si=Vu-m591OJh5irsGP :  Hierarchy
+- https://youtu.be/9Pgg-sTY2vo?si=gtZCt7Pbo42Hvtgz : Common English Mistakes
