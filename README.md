@@ -27,4 +27,3 @@ That's it
 - https://youtu.be/G3lJAxg1cy8?si=RboWtuTTAObvl9rZ : Sql Joins
 - https://youtu.be/2s9Pkfva9oU?si=Vu-m591OJh5irsGP :  Hierarchy
 - https://youtu.be/9Pgg-sTY2vo?si=gtZCt7Pbo42Hvtgz : Common English Mistakes
-- https://youtube.com/shorts/0Mx17bqqcso?si=HtImg2AvJ3ewFPz0 : Square Tire
