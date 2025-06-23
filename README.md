@@ -29,4 +29,5 @@ That's it
 - https://youtu.be/9Pgg-sTY2vo?si=gtZCt7Pbo42Hvtgz : Common English Mistakes
 - https://youtu.be/xguam0TKMw8?si=NAcwvFVwrZQ-EZ71 : Principles by Ray Dalio
 - https://youtu.be/y4AvlAUYWEM?si=ROFDiQH2IhQeyAR_ : Teens Detox
-- https://youtu.be/pe_ejTiIcSs?si=3h2AUf5M5R497L_S : 365 days challenge ( A really amazing video to show what can be achieved in a span of just 6 months: and how important is your fitness and money) 
+- https://youtu.be/pe_ejTiIcSs?si=3h2AUf5M5R497L_S : 365 days challenge ( A really amazing video to show what can be achieved in a span of just 6 months: and how important is your fitness and money)
+- https://youtu.be/Mw30CgaXiQw?si=ZlClORHr0uES9S6j : A really brilliant story of a really brilliant mind (Eratosthenes) how he calculated the earth circumference just by using a stick.... this video is a strong advocate to the idea that even the biggest of the problem can be solved bu just clear and intelligent thinking and breaking the problems into smaller things u should not complicate stuff for sure!!!
