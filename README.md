@@ -34,3 +34,4 @@ That's it
 - https://youtu.be/Mw30CgaXiQw?si=ZlClORHr0uES9S6j : A really brilliant story of a really brilliant mind (Eratosthenes) how he calculated the earth circumference just by using a stick.... this video is a strong advocate to the idea that even the biggest of the problem can be solved bu just clear and intelligent thinking and breaking the problems into smaller things u should not complicate stuff for sure!!!
 - https://youtu.be/ic1TKEIyld0?si=H-UGDzo0pLWZUWbd
 - https://youtu.be/GhH1QWY6BDc?si=PzHKjC7IDpc7iy5k : Saas Project
+- https://youtu.be/KEs5UyBJ39g?si=eHspdk_aKBURzXU7 : Hashing
