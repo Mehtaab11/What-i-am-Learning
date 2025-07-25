@@ -35,3 +35,4 @@ That's it
 - https://youtu.be/ic1TKEIyld0?si=H-UGDzo0pLWZUWbd
 - https://youtu.be/GhH1QWY6BDc?si=PzHKjC7IDpc7iy5k : Saas Project
 - https://youtu.be/KEs5UyBJ39g?si=eHspdk_aKBURzXU7 : Hashing
+- http://youtube.com/watch?v=eMplIjZ80Zs&t=15s : Next js Ai based project
