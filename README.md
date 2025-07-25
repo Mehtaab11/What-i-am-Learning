@@ -1,7 +1,7 @@
 
 # What-i-am-Learning
 
-## Japanese Lecture
+## Japanese Lectures
 - https://youtube.com/playlist?list=PLbMVogVj5nJRmUlVaKDlcYHdecA_WFLVv&si=ppcywUjiBwpNX7lN
 - https://youtube.com/playlist?list=PLOcym2c7xnBwU12Flkm5RcLIEhvURQ8TB&si=OySTJadUtGZXkfO4
 
