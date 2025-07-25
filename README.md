@@ -20,6 +20,7 @@ That's it
 - Almanack of Naval
 - Alchemist
 - Power
+- The science of getting rich
 
 ## Some other recommendation 
 - https://jamesclear.com/one-sentence-habits
