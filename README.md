@@ -39,3 +39,4 @@ That's it
 - http://youtube.com/watch?v=eMplIjZ80Zs&t=15s : Next js Ai based project
 - https://youtu.be/Oppxp_oPg6k?si=Ky1Qb39WO58vc9Fk : Zoro's Story
 - https://youtu.be/ySeMzzvPVxk?si=BjuXGuO4joK_Nr-6 : Work for yourself
+- https://youtu.be/Cq7eND5KSPk?si=IxLHGwUMUFjMun5A : Interview Tips
