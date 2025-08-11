@@ -42,3 +42,4 @@ That's it
 - https://youtu.be/ySeMzzvPVxk?si=BjuXGuO4joK_Nr-6 : Work for yourself
 - https://youtu.be/Cq7eND5KSPk?si=IxLHGwUMUFjMun5A : Interview Tips
 - https://youtu.be/hCSHuvDejGA?si=3mbRYbxjMyYT7-hO : Learn faster
+- https://youtu.be/1-TZqOsVCNM?si=2M5JtX8OFluXtL2X : How to get rich without getting lucky
