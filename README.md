@@ -22,6 +22,7 @@ That's it
 - Power
 - The science of getting rich
 - Courage is Calling
+- The courage to be disliked
 
 ## Some other recommendation 
 - https://jamesclear.com/one-sentence-habits
