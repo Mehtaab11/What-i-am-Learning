@@ -44,3 +44,4 @@ That's it
 - https://youtu.be/Cq7eND5KSPk?si=IxLHGwUMUFjMun5A : Interview Tips
 - https://youtu.be/hCSHuvDejGA?si=3mbRYbxjMyYT7-hO : Learn faster
 - https://youtu.be/1-TZqOsVCNM?si=2M5JtX8OFluXtL2X : How to get rich without getting lucky
+- https://www.youtube.com/playlist?list=PLF6ChxadzFf8vjafLIxxbKUfarW4V4IOh
